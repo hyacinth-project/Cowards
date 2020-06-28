@@ -1,6 +1,6 @@
 # Cowards
 
-Working list of cowards who have bent the knee to the woke outrage mob. Open-source -- contributions welcome. List is limited to public figures and/or individuals dictating policy of public organizations, corporations, or institutions.
+Working list of cowards who have bent the knee to woke outrage mobs. Open-source -- contributions welcome. List is limited to public figures and/or individuals dictating policy of public organizations, corporations, or institutions.
 
 
 ### Mike Gundy
