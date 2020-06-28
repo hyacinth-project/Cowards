@@ -26,6 +26,13 @@ Working list of cowards who have bent the knee to the woke outrage mob. Open-sou
 * Source: https://twitter.com/mikehenrybro/status/1276631712949317639
 * Archive: https://web.archive.org/web/20200627081438/https://twitter.com/mikehenrybro/status/1276631712949317639
 
+### Florence Pugh
+* Capacity: Actress (Little Women, Black Widow, Lady Macbeth)
+* Date: 06-27-2020
+* Summary: Florence Pugh apologizes for "cultural appropriation" of wearing her hair braided in corn rows
+* Source: https://www.usatoday.com/story/entertainment/celebrities/2020/06/27/florence-pugh-apologizes-cultural-appropriation/3270209001/
+* Archive: https://web.archive.org/save/https://www.usatoday.com/story/entertainment/celebrities/2020/06/27/florence-pugh-apologizes-cultural-appropriation/3270209001/
+
 ### Alison Brie Schermerhorn
 * Capacity: Voice Actress in BoJack Horseman (Cartoon)
 * Date: 06-28-2020
