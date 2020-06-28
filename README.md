@@ -14,6 +14,7 @@ Working list of cowards who have bent the knee to the woke outrage mob. Open-sou
 ### Jenna Marbles
 * Capacity: YouTube personality
 * Date: 06-25-2020
+* Summary: Jenna Marbles quits YouTube because of controversial comedic videos in 2011
 * Apology: https://youtu.be/Yz3mQhuMACs
 * Source: https://www.forbes.com/sites/jamiecohen/2020/06/27/why-jenna-marbles-one-of-youtubes-first-stars-decided-to-cancel-herself/#51d5644f2028
 * Archive: https://web.archive.org/save/https://www.forbes.com/sites/jamiecohen/2020/06/27/why-jenna-marbles-one-of-youtubes-first-stars-decided-to-cancel-herself/#698861b72143
