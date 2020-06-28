@@ -19,9 +19,16 @@ Working list of cowards who have bent the knee to the woke outrage mob. Open-sou
 * Source: https://www.forbes.com/sites/jamiecohen/2020/06/27/why-jenna-marbles-one-of-youtubes-first-stars-decided-to-cancel-herself/#51d5644f2028
 * Archive: https://web.archive.org/save/https://www.forbes.com/sites/jamiecohen/2020/06/27/why-jenna-marbles-one-of-youtubes-first-stars-decided-to-cancel-herself/#698861b72143
 
+### Mike Davis
+* Capacity: Voice Actor in Family Guy (Cartoon)
+* Date: 06-26-2020
+* Summary: Mike Davis steps down from role voicing black cartoon character, Cleveland Brown, in Family Guy
+* Source: https://twitter.com/mikehenrybro/status/1276631712949317639
+* Archive: https://web.archive.org/web/20200627081438/https://twitter.com/mikehenrybro/status/1276631712949317639
+
 ### Alison Brie Schermerhorn
 * Capacity: Voice Actress in BoJack Horseman (Cartoon)
 * Date: 06-28-2020
-* Summary: Alison Brie apologizes for voicing Asian-American character in cartoon series
+* Summary: Alison Brie apologizes for voicing Asian-American cartoon character, Diane Nguyen, in BoJck Horseman
 * Source: https://wegotthiscovered.com/tv/bojack-horseman-actress-apologizes-voicing-asian-american-character/
 * Archive: https://web.archive.org/save/https://wegotthiscovered.com/tv/bojack-horseman-actress-apologizes-voicing-asian-american-character/
