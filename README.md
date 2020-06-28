@@ -18,3 +18,10 @@ Working list of cowards who have bent the knee to the woke outrage mob. Open-sou
 * Apology: https://youtu.be/Yz3mQhuMACs
 * Source: https://www.forbes.com/sites/jamiecohen/2020/06/27/why-jenna-marbles-one-of-youtubes-first-stars-decided-to-cancel-herself/#51d5644f2028
 * Archive: https://web.archive.org/save/https://www.forbes.com/sites/jamiecohen/2020/06/27/why-jenna-marbles-one-of-youtubes-first-stars-decided-to-cancel-herself/#698861b72143
+
+### Alison Brie Schermerhorn
+* Capacity: Voice Actress in BoJack Horseman (Cartoon)
+* Date: 06-28-2020
+* Summary: Alison Brie apologizes for voicing Asian-American character in cartoon series
+* Source: https://wegotthiscovered.com/tv/bojack-horseman-actress-apologizes-voicing-asian-american-character/
+* Archive: https://web.archive.org/save/https://wegotthiscovered.com/tv/bojack-horseman-actress-apologizes-voicing-asian-american-character/
