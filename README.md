@@ -36,6 +36,6 @@ Working list of cowards who have bent the knee to woke outrage mobs. Open-source
 ### Alison Brie Schermerhorn
 * Capacity: Voice Actress in BoJack Horseman (Cartoon)
 * Date: 06-28-2020
-* Summary: Alison Brie apologizes for voicing Asian-American cartoon character, Diane Nguyen, in BoJck Horseman
+* Summary: Alison Brie apologizes for voicing Asian-American cartoon character, Diane Nguyen, in BoJack Horseman
 * Source: https://wegotthiscovered.com/tv/bojack-horseman-actress-apologizes-voicing-asian-american-character/
 * Archive: https://web.archive.org/save/https://wegotthiscovered.com/tv/bojack-horseman-actress-apologizes-voicing-asian-american-character/
